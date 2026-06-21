@@ -56,3 +56,33 @@ cricket news for everyday
 ---
 
 *Source: ESPNcricinfo | Updated: June 20, 2026*
+
+
+# 🏏 Cricket Everyday — June 21, 2026
+
+## 🏆 Big Result of the Day
+
+### New Zealand beat England — 2nd Test, The Oval
+- **NZ: 391 & 362 | ENG: 291 & 209**
+- New Zealand won by **253 runs** — a dominant Test victory!
+- Star performers: Henry Nicholls (ton), Tom Blundell (brilliant keeping),
+  Matt Henry (consistent wicket-taker)
+- England captain Joe Root confirmed **Ben Stokes will return** for the next Test.
+
+---
+
+## ✅ Recent Results
+
+### India vs Afghanistan — 3rd ODI (Chennai)
+- Afghanistan: **218**
+- India: **224/1** (28.4 overs, chasing 219)
+- **India won by 9 wickets** with 128 balls to spare — complete domination!
+- India whitewash Afghanistan 3-0 in the ODI series.
+
+### ICC Women's T20 World Cup 2026 (England)
+
+| Match | Result |
+|-------|--------|
+| Bangladesh Women vs Pakistan Women | **BAN-W won by 23 runs** (123/6 vs 100/8) |
+| Australia Women vs Netherlands Women | **AUS-W won by 98 runs** (219/6 vs 121/3) |
+| England
