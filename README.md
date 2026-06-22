@@ -86,3 +86,8 @@ cricket news for everyday
 | Bangladesh Women vs Pakistan Women | **BAN-W won by 23 runs** (123/6 vs 100/8) |
 | Australia Women vs Netherlands Women | **AUS-W won by 98 runs** (219/6 vs 121/3) |
 | England
+
+
+# 🏏 Cricket Everyday — June 23, 2026
+
+## 🔥 Highlight of the Day
