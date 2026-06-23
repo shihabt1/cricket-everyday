@@ -88,6 +88,76 @@ cricket news for everyday
 | England
 
 
+# 🏏 Cricket Everyday — June 24, 2026
+
+## 🔴 Live Right Now
+
+### NZ Women vs Scotland Women — Women's T20 WC (Bristol)
+- Scotland Women: **131/7** (20 overs) — DEM Carter top scored with **72**
+- New Zealand Women: **31/3** (5.5 overs) — chasing 132
+- NZ need **101 runs from 85 balls** — losing wickets quickly!
+- Win Probability: NZ-W 57% | SCO-W 43% *(match in progress)*
+
+---
+
+## ✅ Recent Results (June 22-23)
+
+### ICC Women's T20 World Cup 2026
+
+| Match | Result |
+|-------|--------|
+| England Women vs Scotland Women | **ENG-W won by 38 runs** (200/5 vs 162/7) |
+| Bangladesh Women vs Pakistan Women | **BAN-W won by 23 runs** (123/6 vs 100/8) |
+| Australia Women vs Netherlands Women | **AUS-W won by 98 runs** (219/6 vs 121/3) |
+| South Africa Women vs India Women | **SA-W won by 6 wickets** (chase 159 in 19.1 ov) |
+| West Indies Women vs Sri Lanka Women | **WI-W won by 5 wickets** |
+
+- 💥 **Marizanne Kapp** was the star of the tournament so far — 2/27 with ball +
+  unbeaten 81* to win the game for SA vs India
+- 😔 **Chamari Athapaththu** said *"I feel like a failure as a captain"*
+  after Sri Lanka's campaign falls apart
+- 🏝️ **West Indies** now on a 3-match winning streak — semi-final spot looking likely!
+
+---
+
+## 📅 Today's Remaining Matches (June 23)
+
+| Match | Tournament | Venue | Time |
+|-------|-----------|-------|------|
+| 🔴 NZ-W vs SCO-W *(LIVE)* | Women's T20 WC | Bristol | Ongoing |
+| IRE-W vs SL-W | Women's T20 WC | Bristol | 2:30 PM BST |
+| AUS-W vs PAK-W | Women's T20 WC | Leeds | 6:30 PM BST |
+| SF Unicorns vs Texas Super Kings | MLC 2026 | Oakland | Night |
+
+---
+
+## 📅 Tomorrow's Big Match (June 24)
+
+### 🏟️ England Women vs West Indies Women — Lord's, London
+- Group 2 decider — both teams in semi-final contention
+- ENG-W vs WI-W at the home of cricket — don't miss this one!
+- Time: 6:30 PM BST (D/N)
+
+---
+
+## 🗓️ Key Upcoming Fixtures
+
+| Date | Match | Tournament |
+|------|-------|-----------|
+| June 24 | ENG-W vs WI-W | Women's T20 WC (Lord's) |
+| June 25 | **BAN-W vs IND-W** 🔥 | Women's T20 WC (Manchester) |
+| June 25 | NL-W vs SA-W | Women's T20 WC (Bristol) |
+| June 26 | India tour of Ireland begins | 1st T20I (Belfast) |
+
+---
+
+## 📰 News Bites
+
+- 🇳🇿 **New Zealand (defending champions)** fighting for survival —
+  must win today vs Scotland to keep semi-final hopes alive
+- 🇵🇰 **Pakistan Women** officially eliminated from the 2026 Women's T20 WC
+- 🇦🇺 Australia remain unbeaten in Group 1 — strong
+
 # 🏏 Cricket Everyday — June 23, 2026
 
 ## 🔥 Highlight of the Day
