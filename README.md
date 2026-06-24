@@ -161,3 +161,59 @@ cricket news for everyday
 # 🏏 Cricket Everyday — June 23, 2026
 
 ## 🔥 Highlight of the Day
+
+
+# 🏏 Cricket Everyday — June 25, 2026
+
+## 🔥 Big Match Today — Lord's, London
+
+### 🔴 LIVE: England Women vs West Indies Women — Women's T20 WC (Lord's)
+- এই মুহূর্তে চলছে! — Group 2-এর সবচেয়ে বড় ম্যাচ
+- দুই দলই অপরাজিত — উভয়েই 3 ম্যাচে 6 পয়েন্ট নিয়ে আছে
+- বিজয়ী সরাসরি সেমিফাইনালে যাবে!
+- এটাই Women's T20 WC-তে Lord's-এর প্রথম ম্যাচ
+
+**Key Players to Watch:**
+- 🏏 Danni Wyatt-Hodge (ENG) — টুর্নামেন্টে সর্বোচ্চ রান সংগ্রাহক (128 রান)
+- 🎳 Sophie Ecclestone (ENG) — 7 উইকেট, গ্রুপে সেরা বোলার
+- 🏏 Shemaine Campbelle (WI) — 130 রান, WI-র টপ স্কোরার
+- 🎳 Hayley Matthews (WI) — 7 উইকেট + দলীয় নেতৃত্ব
+
+---
+
+## ✅ Recent Results (June 23)
+
+### ICC Women's T20 World Cup 2026
+
+| Match | Result |
+|-------|--------|
+| NZ-W vs SCO-W (Bristol) | **NZ-W won by 6 wkts** (SCO 131/7, NZ 132/4 in 18.2 ov) |
+| IRE-W vs SL-W (Bristol) | **SL-W won by 9 wkts** (IRE 130/5, SL 134/1 in 15.3 ov) |
+| AUS-W vs PAK-W (Leeds) | **AUS-W won by 113 runs** (AUS 199/7, PAK 86 in 13.4 ov) |
+
+**Highlights:**
+- 🇳🇿 NZ defended champions — **Melie Kerr & Sophie Devine** stitched a 101-run partnership
+  to rescue NZ from 26/3, chasing 132. NZ won with 10 balls to spare — still alive!
+- 🇦🇺 Australia completely demolished Pakistan — won by **113 runs**,
+  Pakistan bowled out for just **86**. AUS remain unbeaten in 4 matches!
+- 🇱🇰 Sri Lanka bounced back — Chamari Athapaththu led the charge after
+  her "failure as captain" comment; SL beat Ireland by 9 wickets
+
+---
+
+## 📅 Today's Matches (June 25)
+
+| Match | Tournament | Venue | Time |
+|-------|-----------|-------|------|
+| 🔴 ENG-W vs WI-W *(LIVE)* | Women's T20 WC | Lord's, London | Ongoing |
+| **BAN-W vs IND-W** 🔥 | Women's T20 WC | Manchester | 2:30 PM BST |
+| NL-W vs SA-W | Women's T20 WC | Bristol | 2:30 PM BST |
+| SEO vs Washington Freedom | MLC 2026 | Oakland | Night |
+
+---
+
+## 🇧🇩 Special Focus — Bangladesh Women vs India Women!
+
+### BAN-W vs IND-W — Manchester (June 25)
+- এটা আজকের সবচেয়ে গুরুত্বপূর্ণ Group 1 ম্যাচ!
+- India এখন 4
