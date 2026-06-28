@@ -217,3 +217,21 @@ cricket news for everyday
 ### BAN-W vs IND-W — Manchester (June 25)
 - এটা আজকের সবচেয়ে গুরুত্বপূর্ণ Group 1 ম্যাচ!
 - India এখন 4
+
+# 🏏 Cricket Everyday — June 28, 2026
+
+## Today's Big Results
+
+- 🔴 **IND-W vs AUS-W** (Lord's) — LIVE! India batting: 170/4 in 20 ov, AUS chasing
+- ✅ **SA-W beat BAN-W** by 4 wickets (118/6 chasing 118) — Lord's
+- ✅ **IRE-W beat WI-W** by 6 wickets (Bristol, June 27)
+- ✅ **ENG-W vs NZ-W** (The Oval, June 27) — England chasing 164, match ongoing
+- 🏏 **Ireland vs India 2nd T20I** (Belfast) — Ireland lead series 1-0, India need to win!
+
+## Semi-final Picture (Women's T20 WC)
+- AUS ✅ confirmed | ENG ✅ confirmed
+- 2nd spot Group 1: **SA qualify IF Australia beat India today**
+- Semi-finals: June 30 & July 2 at The Oval | Final: July 5 at Lord's
+
+---
+*Source: ESPNcricinfo | Updated: June 28, 2026*
