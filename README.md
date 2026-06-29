@@ -5,30 +5,13 @@ cricket news for everyday
 
 ## 🔴 Live / Recent Results
 
-### India vs Afghanistan — ODI Series
-- India posted **402** in their ODI, Afghanistan bowled out for **232** chasing 403.
-- India win by a massive margin, dominating the home series.
 
-### Australia tour of Bangladesh — T20I Series
-- **2nd T20I (Chattogram):** Australia scored **196/5**, Bangladesh replied with **189/6**.
-- Australia win by **7 runs** — level the T20I series.
-
-### Women's T20 World Cup 2026 (England)
-- **Pakistan Women vs South Africa Women:** SA-W chased down 127 in 16.5 overs — SA win.
-- **India Women vs Netherlands Women:** India posted **209/5**, Netherlands were **114/9** — India win comfortably.
-- **Bangladesh Women vs Australia Women:** Aus won chasing 78 in 9.3 overs.
-
----
 
 ## 📅 Today's Matches (June 20)
 
 | Match | Tournament | Time |
 |-------|-----------|------|
-| Australia Women vs Netherlands Women | ICC Women's T20 WC | 9:30 AM |
-| Bangladesh Women vs Pakistan Women | ICC Women's T20 WC | 1:30 PM |
-| England Women vs Scotland Women | ICC Women's T20 WC | D/N (Leeds) |
-| Texas Super Kings vs San Francisco Unicorns | Major League Cricket | 8:30 PM |
-| MI New York vs Washington Freedom | Major League Cricket | Night |
+
 
 ---
 
@@ -43,8 +26,6 @@ cricket news for everyday
 ## 📰 News Bites
 
 - 🏏 **MLC 2026** (4th season) kicked off on June 18. **Texas Super Kings** beat Seattle Orcas by **6 wickets** in the opening match.
-- 🇮🇳 **15-year-old Sooryavanshi** will have his parents with him on India's tour of Ireland & England — BCCI making special arrangements for the teenage prodigy.
-- 🇧🇷 **Roberta Moretti**, Brazil's pioneering women's cricketer, has announced her retirement from international cricket.
 
 ---
 
@@ -63,27 +44,14 @@ cricket news for everyday
 ## 🏆 Big Result of the Day
 
 ### New Zealand beat England — 2nd Test, The Oval
-- **NZ: 391 & 362 | ENG: 291 & 209**
-- New Zealand won by **253 runs** — a dominant Test victory!
-- Star performers: Henry Nicholls (ton), Tom Blundell (brilliant keeping),
-  Matt Henry (consistent wicket-taker)
-- England captain Joe Root confirmed **Ben Stokes will return** for the next Test.
+
 
 ---
 
 ## ✅ Recent Results
 
 ### India vs Afghanistan — 3rd ODI (Chennai)
-- Afghanistan: **218**
-- India: **224/1** (28.4 overs, chasing 219)
-- **India won by 9 wickets** with 128 balls to spare — complete domination!
-- India whitewash Afghanistan 3-0 in the ODI series.
-
-### ICC Women's T20 World Cup 2026 (England)
-
-| Match | Result |
-|-------|--------|
-| Bangladesh Women vs Pakistan Women | **BAN-W won by 23 runs** (123/6 vs 100/8) |
+|
 | Australia Women vs Netherlands Women | **AUS-W won by 98 runs** (219/6 vs 121/3) |
 | England
 
@@ -93,10 +61,7 @@ cricket news for everyday
 ## 🔴 Live Right Now
 
 ### NZ Women vs Scotland Women — Women's T20 WC (Bristol)
-- Scotland Women: **131/7** (20 overs) — DEM Carter top scored with **72**
-- New Zealand Women: **31/3** (5.5 overs) — chasing 132
-- NZ need **101 runs from 85 balls** — losing wickets quickly!
-- Win Probability: NZ-W 57% | SCO-W 43% *(match in progress)*
+-
 
 ---
 
@@ -105,28 +70,16 @@ cricket news for everyday
 ### ICC Women's T20 World Cup 2026
 
 | Match | Result |
-|-------|--------|
-| England Women vs Scotland Women | **ENG-W won by 38 runs** (200/5 vs 162/7) |
-| Bangladesh Women vs Pakistan Women | **BAN-W won by 23 runs** (123/6 vs 100/8) |
-| Australia Women vs Netherlands Women | **AUS-W won by 98 runs** (219/6 vs 121/3) |
-| South Africa Women vs India Women | **SA-W won by 6 wickets** (chase 159 in 19.1 ov) |
-| West Indies Women vs Sri Lanka Women | **WI-W won by 5 wickets** |
+
 
 - 💥 **Marizanne Kapp** was the star of the tournament so far — 2/27 with ball +
-  unbeaten 81* to win the game for SA vs India
-- 😔 **Chamari Athapaththu** said *"I feel like a failure as a captain"*
-  after Sri Lanka's campaign falls apart
-- 🏝️ **West Indies** now on a 3-match winning streak — semi-final spot looking likely!
 
 ---
 
 ## 📅 Today's Remaining Matches (June 23)
 
 | Match | Tournament | Venue | Time |
-|-------|-----------|-------|------|
-| 🔴 NZ-W vs SCO-W *(LIVE)* | Women's T20 WC | Bristol | Ongoing |
-| IRE-W vs SL-W | Women's T20 WC | Bristol | 2:30 PM BST |
-| AUS-W vs PAK-W | Women's T20 WC | Leeds | 6:30 PM BST |
+
 | SF Unicorns vs Texas Super Kings | MLC 2026 | Oakland | Night |
 
 ---
@@ -134,19 +87,7 @@ cricket news for everyday
 ## 📅 Tomorrow's Big Match (June 24)
 
 ### 🏟️ England Women vs West Indies Women — Lord's, London
-- Group 2 decider — both teams in semi-final contention
-- ENG-W vs WI-W at the home of cricket — don't miss this one!
-- Time: 6:30 PM BST (D/N)
 
----
-
-## 🗓️ Key Upcoming Fixtures
-
-| Date | Match | Tournament |
-|------|-------|-----------|
-| June 24 | ENG-W vs WI-W | Women's T20 WC (Lord's) |
-| June 25 | **BAN-W vs IND-W** 🔥 | Women's T20 WC (Manchester) |
-| June 25 | NL-W vs SA-W | Women's T20 WC (Bristol) |
 | June 26 | India tour of Ireland begins | 1st T20I (Belfast) |
 
 ---
@@ -154,84 +95,39 @@ cricket news for everyday
 ## 📰 News Bites
 
 - 🇳🇿 **New Zealand (defending champions)** fighting for survival —
-  must win today vs Scotland to keep semi-final hopes alive
-- 🇵🇰 **Pakistan Women** officially eliminated from the 2026 Women's T20 WC
-- 🇦🇺 Australia remain unbeaten in Group 1 — strong
+ 
 
 # 🏏 Cricket Everyday — June 23, 2026
 
-## 🔥 Highlight of the Day
 
-
-# 🏏 Cricket Everyday — June 25, 2026
-
-## 🔥 Big Match Today — Lord's, London
 
 ### 🔴 LIVE: England Women vs West Indies Women — Women's T20 WC (Lord's)
-- এই মুহূর্তে চলছে! — Group 2-এর সবচেয়ে বড় ম্যাচ
-- দুই দলই অপরাজিত — উভয়েই 3 ম্যাচে 6 পয়েন্ট নিয়ে আছে
-- বিজয়ী সরাসরি সেমিফাইনালে যাবে!
-- এটাই Women's T20 WC-তে Lord's-এর প্রথম ম্যাচ
+-
 
 **Key Players to Watch:**
 - 🏏 Danni Wyatt-Hodge (ENG) — টুর্নামেন্টে সর্বোচ্চ রান সংগ্রাহক (128 রান)
-- 🎳 Sophie Ecclestone (ENG) — 7 উইকেট, গ্রুপে সেরা বোলার
-- 🏏 Shemaine Campbelle (WI) — 130 রান, WI-র টপ স্কোরার
-- 🎳 Hayley Matthews (WI) — 7 উইকেট + দলীয় নেতৃত্ব
-
----
 
 ## ✅ Recent Results (June 23)
 
-### ICC Women's T20 World Cup 2026
-
-| Match | Result |
-|-------|--------|
-| NZ-W vs SCO-W (Bristol) | **NZ-W won by 6 wkts** (SCO 131/7, NZ 132/4 in 18.2 ov) |
 | IRE-W vs SL-W (Bristol) | **SL-W won by 9 wkts** (IRE 130/5, SL 134/1 in 15.3 ov) |
-| AUS-W vs PAK-W (Leeds) | **AUS-W won by 113 runs** (AUS 199/7, PAK 86 in 13.4 ov) |
 
-**Highlights:**
-- 🇳🇿 NZ defended champions — **Melie Kerr & Sophie Devine** stitched a 101-run partnership
-  to rescue NZ from 26/3, chasing 132. NZ won with 10 balls to spare — still alive!
-- 🇦🇺 Australia completely demolished Pakistan — won by **113 runs**,
-  Pakistan bowled out for just **86**. AUS remain unbeaten in 4 matches!
 - 🇱🇰 Sri Lanka bounced back — Chamari Athapaththu led the charge after
-  her "failure as captain" comment; SL beat Ireland by 9 wickets
 
----
 
-## 📅 Today's Matches (June 25)
 
 | Match | Tournament | Venue | Time |
 |-------|-----------|-------|------|
-| 🔴 ENG-W vs WI-W *(LIVE)* | Women's T20 WC | Lord's, London | Ongoing |
-| **BAN-W vs IND-W** 🔥 | Women's T20 WC | Manchester | 2:30 PM BST |
-| NL-W vs SA-W | Women's T20 WC | Bristol | 2:30 PM BST |
-| SEO vs Washington Freedom | MLC 2026 | Oakland | Night |
 
----
-
-## 🇧🇩 Special Focus — Bangladesh Women vs India Women!
-
-### BAN-W vs IND-W — Manchester (June 25)
-- এটা আজকের সবচেয়ে গুরুত্বপূর্ণ Group 1 ম্যাচ!
-- India এখন 4
-
-# 🏏 Cricket Everyday — June 28, 2026
 
 ## Today's Big Results
 
-- 🔴 **IND-W vs AUS-W** (Lord's) — LIVE! India batting: 170/4 in 20 ov, AUS chasing
-- ✅ **SA-W beat BAN-W** by 4 wickets (118/6 chasing 118) — Lord's
-- ✅ **IRE-W beat WI-W** by 6 wickets (Bristol, June 27)
-- ✅ **ENG-W vs NZ-W** (The Oval, June 27) — England chasing 164, match ongoing
-- 🏏 **Ireland vs India 2nd T20I** (Belfast) — Ireland lead series 1-0, India need to win!
+# 🏏 Cricket Everyday — June 29, 2026
 
-## Semi-final Picture (Women's T20 WC)
-- AUS ✅ confirmed | ENG ✅ confirmed
-- 2nd spot Group 1: **SA qualify IF Australia beat India today**
-- Semi-finals: June 30 & July 2 at The Oval | Final: July 5 at Lord's
+## Latest Results
 
----
-*Source: ESPNcricinfo | Updated: June 28, 2026*
+- 😱 **Ireland beat India** by 1 run (2nd T20I, Belfast) — Ireland won the series 2-0!
+  Ireland 154/8, India 153/9. অবিশ্বাস্য!
+- ✅ **AUS-W beat IND-W** by 6 wickets (Lord's) — India 170/4, AUS 172/4 in 19 ov.
+  India Women semi-final থেকে বাদ, SA-W qualify করেছে!
+- ✅ **SF Unicorns beat Washington Freedom** by 8 wkts (MLC, Oakland)
+- ✅
