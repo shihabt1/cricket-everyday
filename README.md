@@ -131,3 +131,13 @@ cricket news for everyday
   India Women semi-final থেকে বাদ, SA-W qualify করেছে!
 - ✅ **SF Unicorns beat Washington Freedom** by 8 wkts (MLC, Oakland)
 - ✅
+
+# 🏏 Cricket Everyday — June 30, 2026
+
+## Today's Big Match
+- 🔴 **1st Semi-Final (Women's T20 WC)** — Australia vs West Indies, The Oval — LIVE!
+  WI Women: 64/4 (12.1 ov)
+
+## Recent Results
+- ✅ **NZ beat England** by 160 runs — 3rd Test, Nottingham. NZ sweep the series!
+- ✅
