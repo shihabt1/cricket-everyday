@@ -141,3 +141,12 @@ cricket news for everyday
 ## Recent Results
 - ✅ **NZ beat England** by 160 runs — 3rd Test, Nottingham. NZ sweep the series!
 - ✅
+
+# 🏏 Cricket Everyday — July 1, 2026
+
+## Recent Results
+- ✅ **AUS-W beat WI-W** by 8 wkts — Women's T20 WC Semi-Final, The Oval
+  (WI: 125/7, AUS: 127/2 in 13 ov) Australia final-এ!
+- ✅ **Zimbabwe beat Bangladesh** by an innings & 85 runs — Only Test, Harare
+  (BAN: 140 & 185, ZIM: 410) — Bangladesh ধরাশায়ী!
+- ✅ **Ireland beat India** 2-0 — ভারতের জন্য লজ্জার সিরিজ হার
